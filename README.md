@@ -1,3 +1,5 @@
+**Dumped from reddit comment:**
+
 Unfortunately, I couldn't really find anywhere that looked like a good spot for me to post it again. Fortunately, I saved the text of my post in a Word document!
 It's a bit of a hassle to set up for the first time, and it's android only, but it's quite good at farming. It doesn't re-enter dungeons (I feature I planned on adding if a lot of people asked for it, but my post died before picking up too much steam), but it's pretty good at clearing them quickly. I usually just leave it running nearby while I read or do homework. If you decide to use it and have trouble following any of my instructions just let me know. Anyway, I'll paste the text from my original post here:
 I'm not sure if posts like this are against the rules of this sub, so if that's the case please let me know where else I could post this.
